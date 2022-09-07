@@ -1,7 +1,8 @@
-# ENGL 109W. Preparing to Write in the Disciplines. 3 Units
+# ENGL 109W. Preparing to Write in the Disciplines. 3 Units - FALL 2022
+
+Instructor - Lecturer: Sean (Hsiang) Liu, liuh@csus.edu
 
 Prerequisite(s): English 20 with a C- grade or better.
-
 Term Typically Offered: Fall, Spring
 
 Provides intensive practice in prewriting, drafting, revising, and editing
