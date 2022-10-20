@@ -1,4 +1,4 @@
-# ENGL 109W. Preparing to Write in the Disciplines. 3 Units - FALL 2022
+# ENGL 109W. Preparing to Write in the Disciplines (Writing for GWAR Placement). 3 Units - FALL 2022
 
 Instructor - Lecturer: Sean (Hsiang) Liu, liuh@csus.edu
 
